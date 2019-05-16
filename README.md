@@ -1,2 +1,0 @@
-# corydonrie.github.io
-website
